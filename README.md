@@ -1,4 +1,4 @@
-## Prazer, Me chamo Vinicius Menezes (universitario SI)
+## Prazer, Me chamo Vinicius Menezes (Atualmente sou universitario em Sitemas De Informação)
 
 
 <picture>
